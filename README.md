@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @NeutralTheGreat
+- 👋 Hi, I’m @Neutral
 
 
 i hope you have a nice day you deserve  it :D 
